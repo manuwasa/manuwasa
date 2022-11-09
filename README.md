@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @manuwasa
-- 👀 I’m interested in Web Developing
+- 👀 I’m interested in Web Development
 - 🌱 I’m currently Fresh Graduated From Universitas Bhayangkara Jakarta Raya, Indonesia
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me manuwasa.f@gmail.com
